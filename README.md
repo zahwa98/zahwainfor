@@ -1,2 +1,3 @@
 # zahwainfor
-bismillah hujan berkah 
+#informatikasemakindidepan
+
